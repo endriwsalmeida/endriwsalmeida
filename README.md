@@ -1,7 +1,7 @@
 - 👋 Olá, sou @endriwsalmeida
 - 👀 Estou interessado em Tecnico de desenvolvimento de sistemas,Ed.física
 - 🌱 Atualmente estou aprendendo o curso tecnico de desenvolvimento de sistemas
-- 💞️ Procuro colaborar em Ter minha namorada e ter um futuro melhor e casar e ter a minha propria familia 
+- 💞️
 - 📫 Como entrar em contato comigo 
 - através do meu e-mail ou instagram 
 - endriws.almeida@escola.pr.gov.br
